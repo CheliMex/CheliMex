@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CheliMex
+- 👋 Hi, my name is Araceli
 - 👀 I’m interested in Coding, Anime, Manga
 - 🌱 I’m currently learning Computer Science 
 - 💞️ I’m looking forward in my making lots of friends
